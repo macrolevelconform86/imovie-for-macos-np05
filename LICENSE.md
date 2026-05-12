@@ -1,4 +1,4 @@
-# 
+# iMovie for macOS custom Addon: motion-tracking & time-remapping is the best iMovie for macOS addon, featuring motion-tracking and time-remapping. Safe, efficient, and optimized
 
 
 
